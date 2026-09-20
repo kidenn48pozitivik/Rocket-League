@@ -226,4 +226,4 @@ Rocket League is offered as a full free version with all features and updates in
 Don't miss out on the action—**download Rocket League now and gear up for incredible matches!**
 
 ---
-**Last updated:** 2026-09-19 22:13:21 UTC
+**Last updated:** 2026-09-20 00:47:39 UTC
